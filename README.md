@@ -24,7 +24,7 @@ The **CITB Health and Safety Test for Operatives** assesses knowledge of workpla
 
 To book your **CITB Health and Safety Operative Test**, choose an accredited test provider and select the correct test type based on your role in the construction industry.
 
-For more details, visit [this page](https://dynamiseducation.co.uk/cscs-test-manchester/).
+For more details, visit [this page](https://dynamiseducation.co.uk/hse-tests/).
 
 ## Contact Information
 
